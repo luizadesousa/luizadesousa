@@ -5,4 +5,3 @@
 ➸ Front-end: HTML|CSS|Javascript e UX|UI em progresso.
 ➸ Programação é um estudo constante e criativo.
 
-∘₊✧──────✧₊∘∘₊✧──────✧₊∘∘₊✧──────✧₊∘∘₊✧──────✧₊∘
